@@ -1,5 +1,5 @@
 
-## Hey there, i'm Owta.
+## Hey there, I'm Owta.
 
   You may know me as Jason, or Lily if you know me well enough.
  
