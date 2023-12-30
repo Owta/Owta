@@ -10,4 +10,4 @@
   
   > *insert transfem programmer meme here*
   
- You can find me on [Twitter (@Owta_)](https://twitter.com/owta_), [Discord (Owta~🌸#6969)](https://discord.gg/SNSfQcFkXR), or [Steam (Owtasmh)](https://steamcommunity.com/id/owtasmh)
+ You can find me on [Twitter (@Owta_)](https://twitter.com/owta_), [Discord (owtasmh)](https://discord.gg/SNSfQcFkXR), or [Steam (Owtasmh)](https://steamcommunity.com/id/owtasmh)
