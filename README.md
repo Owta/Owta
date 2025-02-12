@@ -10,4 +10,4 @@
   
   > *insert transfem programmer meme here*
   
- You can find me on [here](https://owtasmh.gay/socials)
+ You can find me [here](https://owtasmh.gay/socials)
