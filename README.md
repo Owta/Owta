@@ -1,7 +1,5 @@
 
 ## Hey there, I'm Owta.
-
-  You may know me as Jason, or Lily if you know me well enough.
  
  I make stupid shit and sometimes publish it here.
   Stupid shit being a scuffed AutoHotKey program to hook all keystrokes to itself for cleaning your laptop keyboard while it's running
